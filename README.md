@@ -1,1 +1,1 @@
-# 2nd year notes
+# College resources
